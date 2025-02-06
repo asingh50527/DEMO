@@ -1,3 +1,3 @@
 # DEMO
 <i>
-Author - Aditi Singh
+Author - Aditi Kumari Singh
